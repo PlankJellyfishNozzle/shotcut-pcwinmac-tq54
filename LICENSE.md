@@ -1,4 +1,4 @@
-# 
+# Ultimato Shotcut fluxo de trabalho para Mac OS | Top Shotcut fluxo de trabalho para PC Windows. Com estiramento de tempo e gravação — otimizado para máximo desempenho em cada plataforma.
 
 
 
